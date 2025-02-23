@@ -1,1 +1,0 @@
-# Entelika_Hackathon
